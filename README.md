@@ -1,0 +1,5 @@
+- 👋 Oi, meu nome é @emanuelybutk
+- 👀 Estou interessado em astronomia
+- 🌱 Atualmente estou estudando ensino medio
+- 💞️ dormir
+- 📫 Voce pode me achar em Pimentel.emanuely@escola.pr.gov.br
