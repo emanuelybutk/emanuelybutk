@@ -2,4 +2,4 @@
 - 👀 Estou interessado em astronomia
 - 🌱 Atualmente estou estudando ensino medio
 - 💞️ dormir
-- 📫 Voce pode me achar em Pimentel.emanuely@escola.pr.gov.br
+- 📫 Voce pode me achar em Emanuely.pimentel@escola.pr.gov.br
